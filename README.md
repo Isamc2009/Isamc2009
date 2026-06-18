@@ -23,4 +23,4 @@ Se você quiser trocar uma ideia sobre criação de telas, desenvolvimento web o
 
  **Como me encontrar:** 
 * [LinkedIn](https://www.linkedin.com/in/isabelle-coelho-a20a25417)
-* [Email] isabelle.2009mc@gmail.com
+* isabelle.2009mc@gmail.com
